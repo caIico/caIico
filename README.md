@@ -3,4 +3,4 @@
 
 ![](https://files.catbox.moe/4lpnib.png)
 
-i dont play as often anymore. @caIico and @justicearcana have turned into wastelands
+i dont play as often anymore (if at all). @caIico and @justicearcana have turned into wastelands
